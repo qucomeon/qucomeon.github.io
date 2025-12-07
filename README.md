@@ -1,1 +1,1 @@
-# qucomeon.github.io
+# [qucomeon.github.io](https://hoo.be/chaojidh)
